@@ -1,8 +1,3 @@
-[tread somewhere else because why would you be here.
-the song says don't tread on me
-language i use
-like
-my inventions
-in different ways.
-
-https://www.youtube.com/watch?v=_o76TuRdxWY
+Im many things and it would be preposterous to call me a builder, a hacker, a programmer.
+Im cross-discipline.
+So yeah. Im pro-hacker anti bs.
